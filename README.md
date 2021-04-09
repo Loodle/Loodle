@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Loodle
+- 👀 I’m interested in money and reletionships between people
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on my dating project
+- 📫 --
